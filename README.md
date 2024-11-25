@@ -1,2 +1,2 @@
-# bruh
-I got bored
+# Important
+check out crouton.net
